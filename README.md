@@ -1,1 +1,3 @@
-I can be contacted at: gordieschiebel@gmail.com
+## For contact
+
+I can be reached at: gordieschiebel@gmail.com
