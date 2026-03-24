@@ -1,3 +1,3 @@
 ## For contact
 
-I can be reached at: gordieschiebel@gmail.com
+I can be reached at: elliptical@gardenofsteel.studio
